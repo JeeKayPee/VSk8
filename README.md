@@ -1,2 +1,2 @@
-# VSk8
+# Please speak to your faculty for usage
  
